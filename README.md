@@ -1,0 +1,1 @@
+# galery3.dzaky
